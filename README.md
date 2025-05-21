@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/d172803c-c1eb-4e27-bd66-fb7fd6124ee8)# LOGO-DESIGN-MOCKUP
+# LOGO-DESIGN-MOCKUP
 
 *COMPANY*: COOTECH IT SOLUTIONS
 
